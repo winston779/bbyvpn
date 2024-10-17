@@ -1,6 +1,6 @@
 # 宝贝云机场官网地址
 
-最新地址：[v3ssy.xyz](https://bby003.com/#/register?code=RwQfcwD5)
+最新地址：[v3ssy.xyz](https://bby005.com/#/register?code=RwQfcwD5)
 
 ## 宝贝云介绍
 
